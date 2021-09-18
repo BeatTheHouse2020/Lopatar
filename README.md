@@ -4,6 +4,7 @@ Lopatar strategy on bustabit
 
 https://www.bustabit.com/user/lopatar
 
+Discord: https://discord.gg/BjqUuGw8mw
 YouTube Video: 
 
 
